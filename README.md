@@ -1,0 +1,2 @@
+# alwismt.github.io
+I am outgoing, dedicated, and open-minded. I get across to people and adjust to changes with ease. I believe that a person should work on developing their professional skills and learning new things all the time.  Currently, I am undergraduate on BEng (HONS) in University of London metropolitan. And I am looking for software, web based Freelancer works and software web based projects.
